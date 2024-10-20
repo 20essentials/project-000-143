@@ -1,0 +1,3 @@
+- **Reference ⬇️**
+  - [MANZ TEACHER DESIGN](https://youtu.be/p2crAxNrrYw?si=j7gZu5CyBz2BSUWQ)
+  - [PATTERN VECTEEZY](https://www.vecteezy.com/vector-art/23133918-infinity-of-universe-dark-night-sky-space-with-shiny-stars-vector-illustration)
